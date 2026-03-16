@@ -1,1 +1,1 @@
-Nou research group
+Nou chuds larping as ML researchers
